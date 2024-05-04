@@ -1,11 +1,10 @@
-- 🖍️ hey, kid. im lillie.
-- 👀 i usually sit in the undertale spot. alone or with friends.
-- 🌱 i like cheese (random)
-- 💞️ e
-- 😄 my pronouns are she/her
-- ⚡ funfact: i like pizza
+🍭 ‎ … "sparkles and sunshines!!" … ❜
 
-<!---
-LillieAnnP/LillieAnnP is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+
+　　　　🧁 ‎ ‎ ‎ -- ‎ ‎ Lillie!1! ‎ ‎‎ ‎ ... ‎ ‎ ‎ ∿ ‎ ‎ ‎ 
+    she/her‎ ‎ ‎ - ‎ ‎ ‎ i love undertale!!
+
+usually active but im rlly shy
+
+dni　　==　basic dni, proshippers
